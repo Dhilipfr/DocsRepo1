@@ -1,1 +1,1 @@
-.kovai land1 -dhilip1
+.kovai land1 -dhilip12
